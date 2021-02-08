@@ -1,0 +1,2 @@
+# vaobjon
+privet vsem
